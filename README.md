@@ -4,7 +4,7 @@ Our official site [www.makerobotix.com](http://www.makerobotix.com/).
 
 Our mould factory: [www.smaringmould.com](https://www.smaringmould.com/).
 
-Skype: makerobotix carter
+Skype: makerobotix
 
 WhatsApp: +86-15112256789
 
